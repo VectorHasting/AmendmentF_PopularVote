@@ -9,3 +9,5 @@ The Bill of Rights Part Two: Ten New Amendments to Protect the First Ten,
 independetly published in 2018
 
 #ConstitutionalAmendment #Constitution #Amendment #AmendTheConstitution #PopularVote
+
+Petition at: 
